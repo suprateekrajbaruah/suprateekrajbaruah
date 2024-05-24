@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @suprateekrajbaruah
+- 👋 Hi, I’m @Suprateek_Baruah
 - 👀 I’m interested in coding, playing football, cricket
 - 🌱 I’m currently learning Bachelor of Technology at NIT Silchar in ELECTRICAL ENGINEERING
 - 📫 How to reach me Suprateek Baruah on Facebook
